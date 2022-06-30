@@ -7,6 +7,6 @@ I am a learner, detailed and goal-oriented team player.
 
 Fun facts... i speak english, French and Swahili
 
-PROJETCS!!
+
 
 
